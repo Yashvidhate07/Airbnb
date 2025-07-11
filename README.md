@@ -99,13 +99,13 @@ A heartfelt thank you to Shradha Khapra didi and AMAN DHATTARWAL bhaiya at #Apna
 
 ## Author
 
-Rakhi Singh \
-Email: rakhisingh030118@gmail.com \
-LinkedIn : https://www.linkedin.com/in/rakhisingh23/
+Yash Vidhate\
+Email: vidhateyash07@gmail.com \
+LinkedIn : https://www.linkedin.com/in/yashvidhate07/
 
 ## Thank You
 
 Thank you for exploring Airbnb! Your feedback is valuable. If you have any suggestions or thoughts, feel free to share them with us. 😊
 
 ---
-### Thanks for visit... 😊😊😊
+### Thanks for visit... 😊
